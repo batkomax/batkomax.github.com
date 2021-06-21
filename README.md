@@ -1,1 +1,1 @@
-# f3.batkomax.github.com
+# batkomax.github.com
